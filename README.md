@@ -1,3 +1,5 @@
+https://drive.google.com/file/d/1EQw96k2MuajoxN1gWg7cJEDEJ1pzqiDX/view?usp=sharing
+
 Esta versión fue modificada/portada a Minecraft 26.3 por mí, principalmente porque quería utilizar Effortless Building en esta versión y no encontré una versión que funcionara como necesitaba. Básicamente, me puse a hacerlo por aburrimiento XD.
 
 Créditos
